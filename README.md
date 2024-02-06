@@ -1,2 +1,2 @@
 # .github
-Introduction file of RUET Career Forum Organization
+Description file of RUET Career Forum Organization
