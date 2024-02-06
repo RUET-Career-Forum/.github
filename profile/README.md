@@ -45,7 +45,7 @@ Respectful and professional conduct is expected from all forum participants. Det
 
 ## Contact
 
-For any inquiries or assistance, please feel free to contact us through the contact form available on our website: https://www.ruetcareerforum.org/contact-us
+For any inquiries or assistance, please feel free to contact us through the contact form available on our website: https://www.ruetcareerforum.org/contact
 
 We value your feedback and are committed to providing exceptional service.
 
